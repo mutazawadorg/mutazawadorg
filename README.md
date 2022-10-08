@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mutazawadorg
 - 👀 I’m interested in Human Rights + Cyber security 
 - 🌱 I’m currently learning Cyber Security
-- 💞️ Pease+ FREEDOM WHAT I WANT IN THIS LIFE
+- 💞️ ✌Peace FREEDOM WHAT I WANT IN THIS LIFE
 - 📫 i lose my job becuase some hacker hacked me in COVID 19☹️
 
 <!---
